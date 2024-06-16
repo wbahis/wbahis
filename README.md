@@ -1,6 +1,6 @@
 🌟 WBAHİS: Uluslararası Online Oyun Platformu 🌟
 
-WBAHİS, uluslararası online oyun alanında 10 yılı aşkın tecrübeye sahip, profesyonel bir ekip tarafından yönetilen bir bahis ve eğlence platformudur. 
+WBAHİS, uluslararası online casino ve oyun alanında uzman tecbüreye sahip, profesyonel bir ekip tarafından yönetilen bir bahis ve eğlence platformudur. 
 
 **https://wbahisresmi.bio.link/**
 
