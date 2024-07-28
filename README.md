@@ -2,7 +2,11 @@
 
 WBAHİS, uluslararası online casino ve oyun alanında uzman tecbüreye sahip, profesyonel bir ekip tarafından yönetilen bir bahis ve eğlence platformudur. 
 
-**https://rebrand.ly/prvn2**
+**https://rebrand.ly/wbahisadres**
+
+**İLK YATIRIMINIZA %100 FREESPIN KAZANMA FIRSATINI KAÇIRMAYIN!**
+![image](https://github.com/user-attachments/assets/00c2080d-c6e3-43b3-ab48-2554a68937f7)
+
 
 🎰 WBAHİS, kullanıcılarına güvenilir ve eğlenceli bir oyun deneyimi sunarak, online casino sektöründe öncü bir konumda bulunmaktadır. 🌐 Platformumuz, uluslararası lisanslara sahip olup, kullanıcı memnuniyetini en üst düzeyde tutmayı hedefleyen yenilikçi oyun tarzıyla dikkat çekmektedir. 🔒 Güvenli ve kullanıcı dostu arayüzümüz sayesinde, her seviyeden oyuncunun kolaylıkla erişebileceği bir oyun deneyimi sağlıyoruz.
 
